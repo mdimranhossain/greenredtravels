@@ -1,2 +1,2 @@
 # greenredtravels
-Everything about Travels and Tours
+Everything About Tours and Travels
